@@ -1,0 +1,2 @@
+This folder provides integration of the various disruptive techniques used, allowing for the culmination of various best of results to develop a unique and market innovative product or service that is truly disruptive
+and can offer best utility for a long term. For example, integration of the disruptive AR and disruptive management, disruptive solution, etc will lead to a better end to end disruptive product.
